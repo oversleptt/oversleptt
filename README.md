@@ -1,6 +1,6 @@
 # Slept's _Info & Boundaries_ ^-^
 
-`this is gonna be a basic as hell idk how to code ,, constantly changing this from time 2 time!`
+`this is gonna be a basic as hell idk how to code (no im js lazy to code) ,, constantly changing this from time 2 time!`
 
 --- PT INFO & BOUNDARIES ---
 
