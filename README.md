@@ -4,7 +4,7 @@
 
 --- PT INFO & BOUNDARIES ---
 
-interact whenever! unless im on *IWEC* (int with extreme caution) / *DNI*. (do not interact)
+interact whenever! unless im on *IWEC* (int with extreme caution) / *DNI*. (do not interact), just be mindful.
 
 please do not c+h if i dont know you or you arent my friends. only exception is if i say in my name or if i do so
 
