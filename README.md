@@ -15,7 +15,7 @@ THIN ICE (MUTE/IWC): if we previously had a bad history, 18+ humor if you're abo
 --- ??? BYI & INFO ??? ---
 
 
-at most times, do iwcare with me. I get sensitive and apologetic much, please be mindful! if i'm on iwc/iwec/dniuid it's best you dont talk to me **unless friends.**
+at most times, do iwcare with me. I get sensitive and apologetic much, please be mindful! if i'm on iwc/iwec/dniuid it's best you dont talk to me **unless friends/moots.**
 
 
 please do not c+h if we do not know eachother! :"( i only prefer so if I state it in my name
