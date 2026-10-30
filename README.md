@@ -1,25 +1,27 @@
-# Slept's _Info & Boundaries_ ^-^
+`updated this  ,, hi read pls`
 
-`this is gonna be a basic as hell idk how to code (no im js lazy to code) ,, constantly changing this from time 2 time!`
-
---- PT INFO & BOUNDARIES ---
-
-interact whenever! unless im on *IWEC* (int with extreme caution) / *DNI*. (do not interact), just be mindful.
-
-please do not c+h if i dont know you or you arent my friends. only exception is if i say in my name or if i do so
-
-i like to talk private w/ my friend/s alot and not focus on ym screen when im on, *so w2i if ur ignored*
+--- !!! DNI CRITERIA !!! ---
 
 
---- BEFORE U INT & DNI ---
+DNI (HARD BLOCK/PERM-HIDE): T.R.A.S.H, pro-life political stances all that (if u get it), if you pissed me off and can't respect me, encouraging problematic behavior
 
-me dni : basic dni criteria (T.R.A.S.H), rightwings, pro-life maga all that shit, disorder fakers, cant respect me, etc js dont be weird
 
-^ note : i dont have a rlly big dni against fictional type of stances, and i def didnt write all my dnis.. but if u pmo **I BLOCK OR MUTE FREELY**
+*if u are any of the above __block me__*
 
-me thin ice : freaky humor if ur 18+ *IM A MINOR*. over 20 pls be careful around me, unconsented heavy vent or trauma dump
 
-byi w/ me : i get a tiny bit shy and i go unresponsive/dry if we js met but promise im cool ok , lowk a lil sensitive and i get apologetic at some times.. so excuse that
+THIN ICE (MUTE/IWC): if we previously had a bad history, 18+ humor if you're above the age of 18, over 20, under 12, __unconsented__ heavy vent dump, pro-fiction, pro-shippers & darkshippers etc
 
-byi part 2 : please do tell if i make you feel uncomfy, not a good person at reading the room.
+
+--- ??? BYI & INFO ??? ---
+
+
+at most times, do iwcare with me. I get sensitive and apologetic much, please be mindful! if i'm on iwc/iwec/dniuid it's best you dont talk to me **unless friends.**
+
+
+please do not c+h if we do not know eachother! :"( i only prefer so if I state it in my name
+
+
+if I unintentionally made you uncomfortable or broke your boundary, __i encourage you to communicate with me__! i'm horrible at reading body language sob.
+
+(everything else should be common sense, don't be weird and we cool ♡)
 
