@@ -3,7 +3,7 @@
 --- !!! DNI CRITERIA !!! ---
 
 
-DNI (HARD BLOCK/PERM-HIDE): T.R.A.S.H, pro-life political stances all that (if u get it), if you pissed me off and can't respect me, encouraging problematic behavior
+DNI (HARD BLOCK/PERM-HIDE): T.R.A.S.H, pro-life political stances all that (if u get it), if you pissed me off or can't respect me, encouraging problematic behavior
 
 
 *if u are any of the above __block me__*
